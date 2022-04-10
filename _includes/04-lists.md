@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+Favorite movies and TV shows
+- Star Wars
+- Iron Man
+- Tare Zameen Par
+- 3 Idiots
+- Young Sheldon
